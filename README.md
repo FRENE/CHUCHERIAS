@@ -1,2 +1,0 @@
-# CHUCHERIAS
-Práctica del curso
